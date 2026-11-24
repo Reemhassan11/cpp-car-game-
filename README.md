@@ -8,8 +8,6 @@
 
 ![Game Screenshot 2](Screenshot%202026-11-24%20230922.png)
 
-![Game Screenshot 3](Screenshot%202026-11-24%20230944.png)
-
 ![Game Screenshot 4](Screenshot%202026-11-24%20230951.png)
 
 ![Game Screenshot 5](Screenshot%202026-11-24%20231003.png)
